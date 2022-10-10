@@ -15,3 +15,11 @@ SACHIYA MD WA BOT SRI LANKA
 1. Click [SCAN](https://replit.com/@Slsachiya99/SL-BLACK-TIGER-MD) and scan QR through Whatsapp Linked Devices Option in Your WhatsApp App.
 
 2. Click [FORK](https://github.com/Slsachiya99/BLACK-TIGER-MD-V1/fork)
+
+3. If You don't have a account in [Heroku](https://signup.heroku.com/), Create a account.
+
+4. Then Click [DEPLOY](https://heroku.com/deploy) Button To Enjoy My Bot.
+
+
+## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=WELCOME+TO+BLACK+TIGER+MD+WA+BOT.;CREATED+BY+SACHIYA+TM;BEST+MULTIDEVICE+WA+BOT;THANKS+FOR+VISITING+MY+GIT)](https://git.io/typing-svg)
+
