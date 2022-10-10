@@ -11,3 +11,5 @@ SACHIYA MD WA BOT SRI LANKA
 <img src="https://i.imgur.com/XHhlqtK.jpeg" alt="GIF" width="700"/>
 
 </p>
+
+1. Click [SCAN](https://replit.com/@Thusitmk/MUTHU-MD-V70?v=1) and scan QR through Whatsapp Linked Devices Option in Your WhatsApp App.
