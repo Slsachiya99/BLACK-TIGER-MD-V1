@@ -32,3 +32,10 @@ SACHIYA MD WA BOT SRI LANKA
 
 
 ## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=ආයුබොවන්+TO+BLACK+TIGER+MD+WA+BOT.;CREATED+BY+SACHIYA+TM;BEST+MULTIDEVICE+WA+BOT;THANKS+FOR+VISITING+MY+GIT+ඉතින්+කොහොමද😁+මොකද+කරන්නෙ)](https://git.io/typing-svg)
+
+
+
+
+https://user-images.githubusercontent.com/115049370/195421971-8c40b8f3-1733-4052-b1b5-2d05764bb640.mp4
+
+
