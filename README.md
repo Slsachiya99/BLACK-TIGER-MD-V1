@@ -36,6 +36,6 @@ SACHIYA MD WA BOT SRI LANKA
 
 
 
-https://user-images.githubusercontent.com/115049370/195421971-8c40b8f3-1733-4052-b1b5-2d05764bb640.mp4
+<img src="https://user-images.githubusercontent.com/115049370/195421971-8c40b8f3-1733-4052-b1b5-2d05764bb640.mp4"
 
 
