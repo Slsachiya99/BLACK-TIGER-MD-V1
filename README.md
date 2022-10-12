@@ -31,11 +31,11 @@ SACHIYA MD WA BOT SRI LANKA
 <img src="https://i.imgur.com/XHhlqtK.jpeg" alt="GIF" width="700"/>
 
 
-## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=ආයුබොවන්+TO+BLACK+TIGER+MD+WA+BOT.;CREATED+BY+SACHIYA+TM;BEST+MULTIDEVICE+WA+BOT;THANKS+FOR+VISITING+MY+GIT+ඉතින්+කොහොමද😁+මොකද+කරන්නෙ)](https://git.io/typing-svg)
+## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=ආයුබොවන්+TO+BLACK+TIGER+MD+WA+BOT.;CREATED+BY+SACHIYA+TM;BEST+MULTIDEVICE+WA+BOT;THANKS+FOR+VISITING+MY+GIT+ඉතින්+කොහොමද😁+මොකද+කරන්නෙ)](https://git.io/typing-svg![IMG-20221008-WA0450](https://user-images.githubusercontent.com/115049370/195422772-0486a695-5911-4cbc-a84a-9c2a5d90c81c.jpg)
 
 
+https://user-images.githubusercontent.com/115049370/195422779-6f43b3fb-b9c8-4329-a5ea-d75d3bb1394e.mp4
 
-
-<img src="https://user-images.githubusercontent.com/115049370/195421971-8c40b8f3-1733-4052-b1b5-2d05764bb640.mp4"
+"https://user-images.githubusercontent.com/115049370/195421971-8c40b8f3-1733-4052-b1b5-2d05764bb640.mp4"
 
 
