@@ -37,6 +37,6 @@ SACHIYA MD WA BOT SRI LANKA
 https://user-images.githubusercontent.com/115049370/195422779-6f43b3fb-b9c8-4329-a5ea-d75d3bb1394e.mp4
 
 
-[![Run on Repl.it][![Run on Repl.it] https://github.com/Slsachiya99/SACHIYA-MD-12V.git
+[![Run on Repl.it][![Run on Repl.it]
 
 
